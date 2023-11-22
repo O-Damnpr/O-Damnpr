@@ -1,1 +1,1 @@
-![edcwdf](https://github.com/O-Damnpr/velyn666/assets/128464668/7ea971e4-8d77-4835-a7ea-002a18cec228)
+![odamn](https://github.com/O-Damnpr/O-Damnpr/assets/128464668/3cda7c90-03ae-4eee-92df-8c0316c7809c)
